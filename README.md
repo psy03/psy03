@@ -1,7 +1,9 @@
 ## ✨ Welcome to my Github Account! ✨ 
 
 I'm soyeon🐱 
+
 Seeing my account means you may be my fellows taking the same class as me.
+
 I want to get along with you and have fun😜 Thank you!💖
 
 <!--
